@@ -12,19 +12,11 @@ Speaks Filipino/English only.
 Fandomless but I love a few characters, these includes:
 
 La Muerte (Book of Life)
-
+Coral Glasses (ENA Dream BBQ)
 Death Wolf (Puss in Boots 2)
-
-Maleficent
-
-Scar (The Lion King)
-
 Notch (Minecraft mythos)
-
 Discord and King Sombra (MLP)
-
 Ceroba (Undertale Yellow)
-
 Asriel (Undertale)
 
 I create OCS based on chess or from any of the topics I randomly read (doesn't mean I am a fan of them): Prehistory, History, Historical Figures, Songs, Nature, Animals.
@@ -35,7 +27,7 @@ I AM SELECTIVELY MUTE. I only interact verbally with my three best friends and g
 
 Yes I make sex jokes, doesn't mean I'm into it irl. Oml.
 
-If you still have an issue with my attitude in the past and haven't moved on from it yet, just block me. No need to burst your damn mouth with nonsense, GODS. Yes I am imperfect and I AM AWARE OF THAT.
+If you still have an issue with my attitude in the past and haven't moved on from it yet, just block me oml. No need to burst your damn mouth with nonsense all because of the past, people change, GODS. Yes I am imperfect and I AM AWARE OF THAT.
 
 People who's into arguments are auto blocked. I don't have time for your bullshit.
 
