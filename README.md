@@ -1,7 +1,7 @@
 # Vie-s-boundaries-and-such.
 ☾︎☽︎  Introduction  ☾︎☽︎
 
-NOTE: Since fixing my Patreon is taking so long. I'll be using Guthub from now on.
+NOTE: Since fixing my Patreon is taking so long. I'll be using Github from now on.
 
 The name is Vie.
 
