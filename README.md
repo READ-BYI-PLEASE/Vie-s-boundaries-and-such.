@@ -12,18 +12,24 @@ Speaks Filipino/English only.
 Fandomless but I love a few characters, these includes:
 
 La Muerte (Book of Life)
+
 Coral Glasses (ENA Dream BBQ)
+
 Death Wolf (Puss in Boots 2)
+
 Notch (Minecraft mythos)
+
 Discord and King Sombra (MLP)
+
 Ceroba (Undertale Yellow)
+
 Asriel (Undertale)
 
 I create OCS based on chess or from any of the topics I randomly read (doesn't mean I am a fan of them): Prehistory, History, Historical Figures, Songs, Nature, Animals.
 
 Yes I fantasize in my mind but the idea of doing it irl icks me off. Not to mention it is also painful, so please do not confuse it for a need to get laid, creep.
 
-I AM SELECTIVELY MUTE. I only interact verbally with my three best friends and gf :).
+I AM SELECTIVELY MUTE. I only interact verbally with my three best friends and gf :). But I also interact if the conversation is VERY serious or important. Sometimes I might talk with you if I'm interested or in a very good mood :).
 
 Yes I make sex jokes, doesn't mean I'm into it irl. Oml.
 
