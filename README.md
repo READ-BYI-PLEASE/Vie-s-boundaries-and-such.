@@ -13,11 +13,13 @@ __________________ ׂׂૢ་༘࿐
 
 The name is Vie.
 
-I'm a certified sapiosexual.
+I'm a certified sapioromantic.
 
-Online family includes Saebre, Sherkivy, Angel and my beloved love, Theo.
+Online family includes Sherkivy, Angel and my beloved love, Theo.
 
 I live in the Philippines.
+
+Closest friend is Anon.
 
 I speak Filipino/English only.
 
